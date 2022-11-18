@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xuangeyouneihan
-- 👀 I’m interested in loafing
+- 👀 I’m interested in slacking
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 <!-- - 📫 How to reach me -->
